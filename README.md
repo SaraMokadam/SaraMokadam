@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SaraMokadam
-- 👀 I’m interested in Digital marketing 
+- 👀 I’m interested in Media
 - 🌱 I’m currently learning Digital marketing 
 - 💞️ I’m looking to collaborate on facebook 
 - 📫 How to reach me sa.almokadam92@gmail.com 
